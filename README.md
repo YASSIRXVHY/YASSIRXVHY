@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @YASSIRXVHY
+- 👀 I’m interested in programming and building new skills
+- 🌱 I’m currently learning I am learning front end development
+- 📫 How to reach me contact me via my personal Email: yassirgattoa@gmail.com
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I like Anime.
